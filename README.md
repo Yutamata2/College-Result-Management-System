@@ -49,5 +49,5 @@ Also college notification is included.
 
 
 
-## Projects with installation support and code explaination for contact gmail: yuvarajanyuvarajan532@gmail.com
+## Projects with installation support and code explaination for contact gmail: thillaiharish2001@gmail.com
 
